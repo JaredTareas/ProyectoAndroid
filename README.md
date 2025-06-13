@@ -46,4 +46,13 @@ Este proyecto me ayudó a:
 
 ---
 
+![29b723dd-6f86-4ada-a49a-9b16d536b508](https://github.com/user-attachments/assets/9c9d989b-0e50-423a-af47-6dff2c033ae2)
+
+![5793539e-e4d7-48fc-9faa-335d4424a9e1](https://github.com/user-attachments/assets/cb632e30-2b32-41df-8c2d-9878e94fcccc)
+
+
+
+
+
+
 
