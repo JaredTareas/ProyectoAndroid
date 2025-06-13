@@ -50,6 +50,8 @@ Este proyecto me ayudó a:
 
 ![5793539e-e4d7-48fc-9faa-335d4424a9e1](https://github.com/user-attachments/assets/cb632e30-2b32-41df-8c2d-9878e94fcccc)
 
+##LINK DE VIDEO EXPLICATIVO
+https://youtube.com/shorts/YT7r2t8d5fg
 
 
 
